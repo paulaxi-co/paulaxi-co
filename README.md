@@ -4,7 +4,7 @@
 ---
 
 ## 👋 About Me  
-Hiya! I’m Paula, a Product Designer with 3+ years of experience crafting human-centered digital experiences. I believe in clean, intuitive, purposeful design — from research and prototyping to solid design systems.
+Hiya! I’m Paula, a Product Designer with 5+ years of experience crafting human-centered digital experiences. I believe in clean, intuitive, purposeful design — from research and prototyping to solid design systems.
 
 ---
 
